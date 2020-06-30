@@ -17,7 +17,7 @@ Off-screen, Depp has dated several female celebrities, and has been engaged to S
  * Pirates of the Caribbean
  * Reduced 
 
- ## Zitate
+ ## Quotes
     
     Johnny Depp said:
  > Not all treasure is silver and gold, mate.
